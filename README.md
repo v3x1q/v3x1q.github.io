@@ -1,1 +1,1 @@
-my web
+ur mom 
